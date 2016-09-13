@@ -1,1 +1,2 @@
-# Thaiks
+# Thai Brides
+The desire to love and to be loved is natural for people all over the world. Regardless of the age, gender, social status and cultural background, people keep looking for their lifetime partners to be happy and create strong families. The advent of the era of online technologies has notably increased the chances of single people to find their mates. Whether you are a man look for exotic and charming <a href="https://www.thaikisses.com/thai-brides.html">brides from thailand</a> or a girl seeking for generous, kind-hearted and sincere men from abroad, you will find plenty of credible and reputable dating agencies in the global network! 
